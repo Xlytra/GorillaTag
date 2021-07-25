@@ -1,2 +1,2 @@
 # GorillaTag
-2 of my GMAT's features in one of my videos
+All of my gorilla tag favourite hats, credit will be given when needed
